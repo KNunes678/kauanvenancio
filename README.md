@@ -10,7 +10,7 @@ Meu Nome é kauan venancio
 
 kauan.venncio.nunes@ecola.pr.gov.br
 
-- Istagram: @gbzin.trem7
+- Istagram: @knzinn.fx7
 
 ![](https://media1.tenor.com/m/YS05rtOt28IAAAAC/anthony-manchester-united.gif)
 
